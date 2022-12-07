@@ -1,1 +1,2 @@
-# .yardimbott31
+# erensibot
+EQWWQSAOFJFJAPJGOPAKOSPPO ERENSİ KARDEŞİM UÇAK GELİYOR
